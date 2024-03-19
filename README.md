@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @DubFather
-- 👀 I’m interested in ... Gaming,, Gym, Rugby.
+- 👀 I’m interested in ... Gaming, Gym, Rugby.
 - 🌱 I’m currently learning ... BCAD
 - 💞️ I’m looking to collaborate on ... Hewp
 - 📫 How to reach me ... Don't
