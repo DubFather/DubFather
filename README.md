@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @DubFather
 - 👀 I’m interested in ... Gaming, Gym, Rugby.
-- 🌱 I’m currently learning ... BCAD
+- 🌱 I’m currently learning ... BCAD IT
 - 💞️ I’m looking to collaborate on ... Hewp
 - 📫 How to reach me ... Don't
 - 😄 Pronouns: ... Nick/Her
